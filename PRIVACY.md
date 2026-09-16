@@ -35,4 +35,4 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 
 If you have any questions about this Privacy Policy, please contact us:
 
-- **Email**: nguyenhoang3519@gmail.com
+- **Email**: nch.aogie@gmail.com
